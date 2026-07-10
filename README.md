@@ -103,3 +103,11 @@ Email address : riddhimab17@gmail.com
 Discord : https://discord.gg/VyRcZMGt
 
 <div align="center">
+
+---
+
+<div align="center">
+
+### 💭 *Learning by building, improving with every project.*
+
+</div>
